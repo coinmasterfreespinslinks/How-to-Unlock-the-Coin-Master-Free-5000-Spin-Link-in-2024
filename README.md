@@ -2,6 +2,8 @@
 
 Are you a passionate Coin Master player looking to get ahead and unlock more rewards? Well, you're in the right place! In 2024, Coin Master continues to be one of the most popular mobile games, offering players a fun mix of slot machines, raiding, attacking, and building. One of the best ways to level up faster and get the most out of the game is by using spins, and what's better than getting **5000 free spins**?
 
+### [✅CLICK HERE TO GET NOW FREE!](https://edris2025.github.io/spins/)
+
 In this article, we will guide you step-by-step on **how to unlock the Coin Master Free 5000 Spin Link in 2024**. The good news is that this offer is available now, and by the end of this article, you'll know exactly how to claim your free spins and make the most out of them!
 
 ## What is Coin Master?
